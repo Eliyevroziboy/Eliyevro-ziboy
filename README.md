@@ -1,0 +1,2 @@
+# Eliyevro-ziboy
+salom
